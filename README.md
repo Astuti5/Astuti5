@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Astuti5
+- 👀 I’m interested in cybersecurity,data science ,software development,and finding ways to somehow balance them 
+- 🌱 I’m currently a college student
+- 💞️ I’m looking to collaborate and learn 
+- 📫  reach me email id astutikumari2.0@gmail.com 
+- 😄 Pronouns: As-s-tu-ti
+- ⚡ Fun fact: i have ADHD😉
